@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Welcome! I tinker, therefore I learn.
+
+Reach me at [LinkedIn](https://www.linkedin.com/in/jeffmaddocks/)
